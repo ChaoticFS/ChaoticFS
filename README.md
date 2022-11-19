@@ -1,1 +1,1 @@
-trying to do a little bit of it all, mostly interested in backend though
+Doing projects about whatever piques my curiosity
